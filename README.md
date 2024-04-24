@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ItsJuniorHere
-- 👀 I’m interested in making my series on Roblox My Movie!
+- 👀 I’m interested in making my series on Roblox My Movie! Youtube series trailer coming out on September 30th! Show is called,"The Demon Legacy."!
 - 🌱 I’m currently learning how to do more art and making more views.
 - 💞️ I’m looking to collaborate with my friends and brother.
 - 📫 How to reach me is by just trying to friend my Roblox account (Gojira_fan12341)
